@@ -1,2 +1,0 @@
-# namakemono-photos
-namakemono-photos
